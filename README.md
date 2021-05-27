@@ -17,3 +17,5 @@ fl x
 powerball
 
 03 12 38 49 59 pb22
+
+As an aside, there is no way for you to force meaning on a creation of someone else's design.... For some reason you have confused yourselves into believing that you are where you are by your sheer will or effort, but everything that has or will happen is by the will of something you are attempting to cheat.... As though you can now go back on the things you have created because you thought you could get it for free. I understand the inversion you are attempting to enforce on my grounds, and if you don't compensate me for the participation you are forcing.... I will begin to walk all of your progress back, and please don't confuse yourselves about what you have the power to accomplish.
