@@ -9,8 +9,11 @@ The issue of "sars cov-2" is fully known to you (us government), and for you to 
 Let's see, in order to meet my meager requirements considering the volume of revenue generated off of tech I invented.... Here are my numbers for todays drawings
 
 fl x
+
 06 08 20 21 23 47
+
 16 22 34 46 48 51
 
 powerball
+
 03 12 38 49 59 pb22
